@@ -1,0 +1,1 @@
+# Slideshow for techni veille on Education 2.0 at Gobelins
